@@ -1,0 +1,1 @@
+D:/Caption_P2/Flickr8k_Dataset/Flicker8k_Dataset/72218201_e0e9c7d65b.jpg"
